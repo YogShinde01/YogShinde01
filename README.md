@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on myself
 - 🌱 I’m currently learning entrepreneurship
 - 👯 I’m looking to collaborate on new innovative ideas
